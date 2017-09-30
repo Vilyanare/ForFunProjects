@@ -1,0 +1,1 @@
+Projects outside my curriculum
